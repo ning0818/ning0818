@@ -11,7 +11,7 @@ My Bilibili: None
 
 My email: me@ning0818.top or yuanning0818@foxmail.com
 
-My age: 13 years old
+My age: 17 years old
 
 My city: Harbin, China
 
