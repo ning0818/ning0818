@@ -9,7 +9,7 @@ My Blog: https://ning0818.cn
 
 My Bilibili: None
 
-My email: me@ning0818.top or yuanning0818@foxmail.com
+My email: me@ning0818.cn or yuanning0818@foxmail.com
 
 My age: 17 years old
 
